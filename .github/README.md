@@ -5,7 +5,7 @@
 </h2>
 
 <p align="center">
-  <img src="https://github.com/priyanshuop123474/Haruki_Robot/blob/master/FallenRobot/resources/fglitch.gif">
+  <img src="https://te.legra.ph/file/85aa9c86485bd0d711424.jpg">
 </p>
 
 _**ᴀᴠᴀɪʟᴀʙʟᴇ ᴏɴ ᴛᴇʟᴇɢʀᴀᴍ ᴀs [ʜᴀʀᴜᴋɪ ✘ ʀᴏʙᴏᴛ](https://t.me/Haruki_Robot)**_
